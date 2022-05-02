@@ -1,1 +1,1 @@
-<img width="968" alt="good" src="https://user-images.githubusercontent.com/100673590/166216211-492de287-42ca-426b-ab36-6d80b19bdcd1.png">
+![happy](https://static.wikia.nocookie.net/virtualyoutuber/images/f/f5/Kizunaai.jpg/revision/latest?cb=20180420064958&path-prefix=zh-tw)
